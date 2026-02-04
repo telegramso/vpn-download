@@ -1,5 +1,6 @@
 # 苹果手机，安卓手机，Windows电脑版，MacOS翻墙加速器下载，VPN软件下载，梯子下载，科学上网工具下载，翻墙APP下载，vpn download，免费VPN下载，免费翻墙加速器下载
 
+一个适合使用于Telegram纸飞机，Instagram，WhatsApp,Tiktok的VPN应用，加速器APP
 飞鸟翻墙加速器,飞鸟VPN APP，应用，软件下载（包含加速器，VPN安卓版APP，Windows桌面版应用下载）  
 https://invite.xlcc.live?code=528534  
 飞鸟加速 注册立即获得免费时长⭐⭐30分钟⭐⭐，绑定邀请码(528534)再额外赠送⭐⭐30分钟⭐⭐。
