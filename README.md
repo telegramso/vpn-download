@@ -12,4 +12,5 @@ Shadowrockect小火箭安卓APP下载（android apk download），、ClashX安�
 http://wwamo.appboz.com/b014wp8qmf 密码:e2il
 
 苹果手机，IOS系统手机翻墙加墙器，翻墙VPN下载，梯子下载，免费苹果VPN，免费苹果加速器下载：
-苹果下载一些优质的加速器需要苹果外区ID，苹果国外ID去下载，需要购买苹果外区ID的找我，需要优质的苹果加速器，苹果VPN的找我：+qq：3924157244
+苹果下载一些优质的加速器需要苹果外区ID，苹果国外ID去下载，需要购买苹果外区ID的找我，需要优质的苹果加速器，苹果VPN的找我：+qq：3924157244  
++微信：chenguitai
